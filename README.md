@@ -1,3 +1,8 @@
+Yenilikçi Öğretmenler Konferansı ve Kristal Meşale Ödül Programı 2026 
+
+<img width="823" height="262" alt="logo" src="https://github.com/user-attachments/assets/f0eb3d64-e49f-40bd-8e92-920da070ccb8" />
+
+
 BİLAL ARTUK 
 
 DERİN ÖĞRENME VE GÖRÜNTÜ İŞLEME TABANLI AKILLI ATÖLYE
